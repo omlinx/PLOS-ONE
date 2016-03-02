@@ -1,3 +1,0 @@
-# PLOS-ONE
-adsfasdfasdfasdf
-asdfasdf
